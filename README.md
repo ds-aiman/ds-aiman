@@ -5,4 +5,5 @@
 - 📫 One can reach me on my email - ds.24.aiman@gmail.com
 - ⚡ Fun fact: Haha I love watching scifi, super heroes and fiction.
 
-Let looks into the Respositoriesa and what it demostrates.
+Let looks into the Respositories and what it demostrates.
+
